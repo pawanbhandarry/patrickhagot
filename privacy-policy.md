@@ -113,7 +113,7 @@ If you have any questions or concerns about this Privacy Policy, please contact:
 
 **Patrick HAGOT**
 Photographer & App Owner
-Email: *[Add contact email here]*
+Email: patrick.hagot@gmail.com
 
 ---
 
